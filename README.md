@@ -2,7 +2,7 @@
 
 **What I'm currently working on?** not much, besides studying CS I'm trying to make a Decentraland game and designing a webpage for a studio I'm currently associated with.  
 I've got experience at Python, C, Java, Kotlin and web development (including SPAs) but I still consider myself a beginner.  
-I'm a *He* but you can call me a *she* if it suits you. 👍  
+I'm a *He* but you can call me a *She* if it suits you. 👍  
 I speak Spanish as my mother tongue 🇲🇽, fluent English 🇺🇸 and just started learning Japanese 🇯🇵.
 
 Feel free to ask me about anything [Evangelion](https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion)!
