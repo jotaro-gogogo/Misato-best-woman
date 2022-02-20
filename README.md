@@ -6,6 +6,10 @@ I'm a *He* but you can call me a *She* if it suits you. 👍
 I speak Spanish as my mother tongue 🇲🇽, fluent English 🇺🇸 and just started learning Japanese 🇯🇵.
 
 Feel free to ask me about anything [Evangelion](https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion)!
+
+To descibre me in one meme: ![IMG_3830](https://user-images.githubusercontent.com/14796646/154858949-026e7e73-16a7-4139-9599-282111459fca.JPG)
+
+
 <!--
 **Misato-best-woman/Misato-best-woman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -18,5 +22,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... ✅
 - 📫 How to reach me: ...
 - 😄 Pronouns: ... ✅
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... ✅❔
 -->
