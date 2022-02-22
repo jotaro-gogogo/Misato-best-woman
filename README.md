@@ -7,7 +7,7 @@ I speak Spanish as my mother tongue 🇲🇽, fluent English 🇺🇸 and just s
 
 Feel free to ask me about anything [Evangelion](https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion)!
 
-To descibre me in one meme: ![IMG_3830](https://user-images.githubusercontent.com/14796646/154858949-026e7e73-16a7-4139-9599-282111459fca.JPG)
+To describe me in one meme: ![IMG_3830](https://user-images.githubusercontent.com/14796646/154858949-026e7e73-16a7-4139-9599-282111459fca.JPG)
 
 
 <!--
