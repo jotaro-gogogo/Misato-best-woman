@@ -7,8 +7,6 @@ I speak Spanish as my mother tongue 🇲🇽, fluent English 🇺🇸 and just s
 
 Feel free to ask me about anything [Evangelion](https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion)!
 
-![](https://komarev.com/ghpvc/?username=Misato-best-woman)
-
 <!--
 **Misato-best-woman/Misato-best-woman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
